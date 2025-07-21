@@ -16,7 +16,6 @@ i have a big obsession with team galactic and space. i luuuv space
 <img width="99" height="56" alt="tumblr_6f8729eb9be4f9c5d376e8adba3f5ab1_bcab182e_100" src="https://github.com/user-attachments/assets/9754d088-bfdb-4442-bde6-44c61787e79e" />
 <img width="99" height="56" alt="tumblr_4bc839b33d4c1ccd569c5ea134089107_b1aee0d9_100" src="https://github.com/user-attachments/assets/6215ba54-df57-47b7-bb54-ef2e41fd4365" />
 <img width="99" height="56" alt="tumblr_0f8b5116d32cc019bf9551cc19bba57a_37d42df0_100" src="https://github.com/user-attachments/assets/5e3e081a-8aa3-47db-ba95-961c1fe467b0" />
-<img width="99" height="55" alt="tumblr_2bef18ef7527cc056e561a9842077a21_9c427184_250" src="https://github.com/user-attachments/assets/45666d47-543a-4856-b7ba-43e48debb30f" />
 <img width="99" height="55" alt="d1or8bf-d020087b-fda2-4df2-a5b5-d5383d13aa6c" src="https://github.com/user-attachments/assets/91ddb8d2-e8e9-4a9c-b17b-6b4d5b8af06e" />
 
 
