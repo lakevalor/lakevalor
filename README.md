@@ -9,6 +9,8 @@ dont flirt with me at all if you arent my boyfriend and dont friend me if youre 
 
 i have a big obsession with team galactic and space. i luuuv space
 
+PLEASE ASK ME ABOUT TEAM GALACTIC OR SPACE OR MYTHOLOGY!!!
+
 <img width="56" height="56" alt="tumblr_d21f7b2ced811a15800851f68cd73492_15ac520a_75" src="https://github.com/user-attachments/assets/7f328b1a-c3e2-4f72-a667-bebebdcb99fe" />
 <img width="99" height="56" alt="tumblr_64b7de54ede11d52e40cbe8ee07396dc_fd836030_100" src="https://github.com/user-attachments/assets/2d0e74b7-65d8-402f-a573-8dda00a42d09" />
 <img width="56" height="56" alt="tumblr_7abefd94bfb8c2a4b4d88f30ab3b49e9_22080804_75" src="https://github.com/user-attachments/assets/52e82a91-acdb-47ae-a93f-d50552b36235" />
