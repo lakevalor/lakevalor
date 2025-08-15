@@ -5,7 +5,7 @@ hi im orion,, intersex trans gay guy, i use he/it and i lauuv my bf blake
 im autistic, i have general issues with socializing,, i like whisps / party chat the best if you wanna talk to me.
 
 
-dont flirt with me at all if you arent my boyfriend and dont friend me if youre under 14. i dont like interacting with middle schoolers 
+dont flirt with me at all if you arent my boyfriend and dont friend me if youre under 14. i dont like interacting with middle schoolers , im usually only c+h with people im friends with sorry.
 
 i have a big obsession with team galactic and space. i luuuv space,, i also REALLY like lady gaga, i mainly make sites (html sites) for funsies
 
